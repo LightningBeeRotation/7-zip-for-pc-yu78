@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://LightningBeeRotation.github.io/7-zip-for-pc-yu78/ ) |
  |---------------------|----------------------:|
 
 
